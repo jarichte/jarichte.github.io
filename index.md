@@ -6,4 +6,4 @@ trägt eine Brille mit runden Gläsern und ist eher klein und schmal für sein A
 * main character
 * figts voldemord
 * unselfish
-> "If you want to know what a man's like, take a good look at how he treats his inferiors, not his equals."
+> If you want to know what a man's like, take a good look at how he treats his inferiors, not his equals.
