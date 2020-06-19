@@ -7,3 +7,4 @@ trägt eine Brille mit runden Gläsern und ist eher klein und schmal für sein A
 * figts voldemord
 * unselfish
 > If you want to know what a man's like, take a good look at how he treats his inferiors, not his equals.
+<img src="https://amp.wuv.de/var/wuv/storage/images/werben_verkaufen/marketing/pandora_macht_jetzt_harry_potter_schmuck/9601855-5-ger-DE/pandora_macht_jetzt_harry_potter_schmuck7_gross.jpg"/>
